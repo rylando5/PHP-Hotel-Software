@@ -1,0 +1,2 @@
+- Bird Hotel:
+ Is a small nice hotel in Crescent Valley.  With 10 rooms and 5 room types. Ranging from single to master suite. Targeted audience primarily is outdoor enthusiasts and people cutting a road trip in half, we provide fair rates, we provide 1 room key per reservation party. Each room will come stocked with all the necessary inventory to ensure satisfaction for your stay. We look forward to seeing you 
